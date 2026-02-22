@@ -1,1 +1,1 @@
-https://drive.google.com/file/d/10AR0x-8oUjV7YpgEiCRhJBUSPIj8fM8C/view?usp=sharing
+https://www.figma.com/design/N7RmsQnUHX0VbhojbPhP4U/Прототип-ИС-Фриланс-платформы?node-id=0-1&t=6HXnXnFXCzrjFtlb-1
