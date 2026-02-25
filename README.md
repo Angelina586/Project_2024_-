@@ -1,1 +1,1 @@
-https://www.figma.com/design/N7RmsQnUHX0VbhojbPhP4U/Прототип-ИС-Фриланс-платформы?node-id=0-1&t=6HXnXnFXCzrjFtlb-1
+https://www.figma.com/design/N7RmsQnUHX0VbhojbPhP4U/%D0%9F%D1%80%D0%BE%D1%82%D0%BE%D1%82%D0%B8%D0%BF-%D0%98%D0%A1-%D0%A4%D1%80%D0%B8%D0%BB%D0%B0%D0%BD%D1%81-%D0%BF%D0%BB%D0%B0%D1%82%D1%84%D0%BE%D1%80%D0%BC%D1%8B?node-id=0-1&t=T0ufnKvIkRhaQrwb-1
